@@ -1,0 +1,6 @@
+- 👋 Hi, I’m skye
+- 👀 I’m interested in ur mom.
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me snap: kaitiee.420 insta: jaz.wh0re
+- 💍 your wh0re is ✨special✨
